@@ -175,5 +175,3 @@ When I'm not learning about cloud infrastructure or working on tech projects, yo
 * 🎮 Gaming
 * 🏋️ At the gym
 * ⚔️ Watching **Jujutsu Kaisen**
-
-> *"Throughout heaven and earth, I alone am the honored one."* — Gojo
