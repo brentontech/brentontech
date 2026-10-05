@@ -174,4 +174,4 @@ When I'm not learning about cloud infrastructure or working on tech projects, yo
 
 * 🎮 Gaming
 * 🏋️ At the gym
-* ⚔️ Watching **Jujutsu Kaisen**
+* ⚔️ Watching anime
